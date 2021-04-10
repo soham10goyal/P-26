@@ -1,0 +1,1 @@
+With a blend of black tea, ginger, cloves, cardamom and cinnamon, our chai is a beautiful balance of smooth and spicy. The bold spiciness of ginger and strong sweetness of clove shine through, but the spices don't overshadow our full-bodied black tea leaves.

@@ -1,0 +1,1 @@
+Chai can include a number of different spices. Cardamom is the most common ingredient, followed by some mixture of cinnamon, ginger, star anise and cloves. Pepper, coriander, nutmeg and fennel are also used, but they are slightly less common. Every family has a blend to suit its tastes.
